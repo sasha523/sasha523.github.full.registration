@@ -1,1 +1,1 @@
-# sasha523.github.register
+# sasha523.github.full.registration
